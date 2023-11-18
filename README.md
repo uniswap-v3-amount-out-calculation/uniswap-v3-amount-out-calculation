@@ -22,21 +22,21 @@ As an EU verified developer, I am committed to verifying my identity and signing
 
 ## Screenshots
 
-[![Screenshot 1](https://i.ibb.co/TRFgQ19/image7.png)](https://i.ibb.co/TRFgQ19/image7.png){:target="_blank"}
+[![Screenshot 1](https://i.ibb.co/TRFgQ19/image7.png)](https://i.ibb.co/TRFgQ19/image7.png)
 
-[![Screenshot 2](https://i.ibb.co/5xTg5nn/image6.png)](https://i.ibb.co/5xTg5nn/image6.png){:target="_blank"}
+[![Screenshot 2](https://i.ibb.co/5xTg5nn/image6.png)](https://i.ibb.co/5xTg5nn/image6.png)
 
-[![Screenshot 3](https://i.ibb.co/pzScnGS/image5.png)](https://i.ibb.co/pzScnGS/image5.png){:target="_blank"}
+[![Screenshot 3](https://i.ibb.co/pzScnGS/image5.png)](https://i.ibb.co/pzScnGS/image5.png)
 
-[![Screenshot 4](https://i.ibb.co/3zr80MF/image4.png)](https://i.ibb.co/3zr80MF/image4.png){:target="_blank"}
+[![Screenshot 4](https://i.ibb.co/3zr80MF/image4.png)](https://i.ibb.co/3zr80MF/image4.png)
 
-[![Screenshot 5](https://i.ibb.co/BZsZWFJ/image3.png)](https://i.ibb.co/BZsZWFJ/image3.png){:target="_blank"}
+[![Screenshot 5](https://i.ibb.co/BZsZWFJ/image3.png)](https://i.ibb.co/BZsZWFJ/image3.png)
 
-[![Screenshot 6](https://i.ibb.co/m52Q3mV/image2.png)](https://i.ibb.co/m52Q3mV/image2.png){:target="_blank"}
+[![Screenshot 6](https://i.ibb.co/m52Q3mV/image2.png)](https://i.ibb.co/m52Q3mV/image2.png)
 
-[![Screenshot 7](https://i.ibb.co/12Lb7p6/image1.png)](https://i.ibb.co/12Lb7p6/image1.png){:target="_blank"}
+[![Screenshot 7](https://i.ibb.co/12Lb7p6/image1.png)](https://i.ibb.co/12Lb7p6/image1.png)
 
-[![Screenshot 8](https://i.ibb.co/rd6KqFj/image0.png)](https://i.ibb.co/rd6KqFj/image0.png){:target="_blank"}
+[![Screenshot 8](https://i.ibb.co/rd6KqFj/image0.png)](https://i.ibb.co/rd6KqFj/image0.png)
 
 
 
